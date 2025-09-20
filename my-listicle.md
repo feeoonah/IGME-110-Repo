@@ -1,5 +1,5 @@
 # ˚ʚ♡ɞ˚
-## ** ♡ Manga & Manhwa & Webtoon List ♡ **
+## **♡ Manga & Manhwa & Webtoon List ♡**
 - [RuriDragon](https://www.viz.com/shonenjump/chapters/ruridragon)
 - [Ichi the Witch](https://www.viz.com/shonenjump/chapters/ichi-the-witch)
 - [The Apothecary Diaries](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/the-apothecary-diaries)
