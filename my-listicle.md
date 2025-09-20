@@ -9,6 +9,8 @@
 - [Spy x Family](https://www.viz.com/spy-x-family)
 - [Kaiju N. 8](https://www.viz.com/kaiju-no-8) **[COMPLETED]**
     - [Kaiju No. 8: B-Side](https://www.viz.com/shonenjump/chapters/kaiju-no-8-b-side) **[COMPLETED]**
+    - [Kaiju No. 8: Hoshina’s Day Off](https://www.viz.com/shonenjump/chapters/kaiju-no-8-hoshinas-day-off) **[COMPLETED]**
+- [The Guy She Was Interested in Wasn't a Guy at All](https://mangadex.org/title/9d3d3403-1a87-4737-9803-bc3d99db1424/the-guy-she-was-interested-in-wasn-t-a-guy-at-all?order=asc) 
 - [Vampire Family](https://www.webtoons.com/en/comedy/vampire-family/list?title_no=6402)
 - [Love Advice from the Great Duke of Hell](https://www.webtoons.com/en/comedy/love-advice/list?title_no=1498) **[COMPLETED]**
 - [Hand Jumper](https://www.webtoons.com/en/thriller/hand-jumper/list?title_no=2702)
