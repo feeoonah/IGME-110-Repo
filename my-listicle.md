@@ -5,6 +5,10 @@
 - [The Apothecary Diaries](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/the-apothecary-diaries)
 - [Mob Psycho 100: Reigen](https://reigenscans.tumblr.com/post/175842597303/reigen-chapter-list) **[COMPLETED]**
 - [Chainsaw Man](https://www.viz.com/shonenjump/chapters/chainsaw-man)
+- [Sakamoto Days](https://www.viz.com/sakamoto-days)
+- [Spy x Family](https://www.viz.com/spy-x-family)
+- [Kaiju No. 8](https://www.viz.com/kaiju-no-8)
+  - 
 - [Vampire Family](https://www.webtoons.com/en/comedy/vampire-family/list?title_no=6402)
 - [Love Advice from the Great Duke of Hell](https://www.webtoons.com/en/comedy/love-advice/list?title_no=1498) **[COMPLETED]**
 - [Hand Jumper](https://www.webtoons.com/en/thriller/hand-jumper/list?title_no=2702)
