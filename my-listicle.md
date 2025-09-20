@@ -2,6 +2,9 @@
 ## ** ♡ Manga & Manhwa & Webtoon List ♡ **
 - [RuriDragon](https://www.viz.com/shonenjump/chapters/ruridragon)
 - [Ichi the Witch](https://www.viz.com/shonenjump/chapters/ichi-the-witch)
+- [The Apothecary Diaries](https://squareenixmangaandbooks.square-enix-games.com/en-us/series/the-apothecary-diaries)
+- [Mob Psycho 100: Reigen](https://reigenscans.tumblr.com/post/175842597303/reigen-chapter-list) **[COMPLETED]**
+- [Chainsaw Man](https://www.viz.com/shonenjump/chapters/chainsaw-man)
 - [Vampire Family](https://www.webtoons.com/en/comedy/vampire-family/list?title_no=6402)
 - [Love Advice from the Great Duke of Hell](https://www.webtoons.com/en/comedy/love-advice/list?title_no=1498) **[COMPLETED]**
 - [Hand Jumper](https://www.webtoons.com/en/thriller/hand-jumper/list?title_no=2702)
@@ -9,4 +12,16 @@
 - [Adding You To My Cart](https://www.webtoons.com/en/canvas/adding-you-to-my-cart/list?title_no=780794)
 - [My Boss Doesn't Have A Face](https://www.webtoons.com/en/canvas/my-boss-doesnt-have-a-face/list?title_no=970595)
 - [Like Mother, Like Daughter](https://www.webtoons.com/en/drama/like-mother-like-daughter/list?title_no=5734)
-
+- [The Tyrant Wants to be Good](https://www.webtoons.com/en/fantasy/the-tyrant-wants-to-be-good/list?title_no=5201) **[COMPLETED]**
+- [I Stole the First Ranker's Soul](https://www.webtoons.com/en/fantasy/i-stole-the-first-rankers-soul/list?title_no=5551) **[COMPLETED]**
+- [Snow and Briar](https://www.webtoons.com/en/comedy/snow-and-briar/list?title_no=6847)
+- [Marionetta](https://www.webtoons.com/en/fantasy/marionetta/list?title_no=4425)
+- [Omniscient Reader](https://www.webtoons.com/en/action/omniscient-reader/list?title_no=2154)
+- [Potion Witch](https://www.webtoons.com/en/fantasy/potion-witch/list?title_no=6210)
+- [Blue Matter](https://www.webtoons.com/en/fantasy/blue-matter/list?title_no=2923)
+- [To the Stars and Back](https://www.webtoons.com/en/slice-of-life/to-the-stars-and-back/list?title_no=4047) **[COMPLETED]**
+- [Cursed Princess Club](https://www.webtoons.com/en/comedy/cursed-princess-club/list?title_no=1537) **[COMPLETED]**
+- [Flawed Almighty](https://www.webtoons.com/en/supernatural/flawed-almighty/list?title_no=3577) **[COMPLETED]**
+- [The Greatest Estate Developer](https://www.webtoons.com/en/fantasy/the-greatest-estate-developer/list?title_no=3596)
+- [Sweet Home](https://www.webtoons.com/en/thriller/sweethome/list?title_no=1285) **[COMPLETED]**
+- [My Deepest Secret](https://www.webtoons.com/en/thriller/my-deepest-secret/list?title_no=1580) **[COMPLETED]**
