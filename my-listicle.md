@@ -7,8 +7,8 @@
 - [Chainsaw Man](https://www.viz.com/shonenjump/chapters/chainsaw-man)
 - [Sakamoto Days](https://www.viz.com/sakamoto-days)
 - [Spy x Family](https://www.viz.com/spy-x-family)
-- [Kaiju No. 8](https://www.viz.com/kaiju-no-8)
-    - 
+- [Kaiju N. 8](https://www.viz.com/kaiju-no-8) **[COMPLETED]**
+    - [Kaiju No. 8: B-Side](https://www.viz.com/shonenjump/chapters/kaiju-no-8-b-side) **[COMPLETED]**
 - [Vampire Family](https://www.webtoons.com/en/comedy/vampire-family/list?title_no=6402)
 - [Love Advice from the Great Duke of Hell](https://www.webtoons.com/en/comedy/love-advice/list?title_no=1498) **[COMPLETED]**
 - [Hand Jumper](https://www.webtoons.com/en/thriller/hand-jumper/list?title_no=2702)
